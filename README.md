@@ -22,3 +22,4 @@ jueduibkn
 haodiy
 zhihao
 yitaib
+zhinenghey
