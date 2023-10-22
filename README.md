@@ -1,5 +1,5 @@
 # disui_hi_01
-vekod
+vekod_0192
 qqqqq
 qdcfdd
 ren n ei
