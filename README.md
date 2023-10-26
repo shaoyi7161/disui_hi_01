@@ -10,7 +10,7 @@ wushuowei
 tianlangx_098
 ttab_kolk
 tianxiaaaa_098
-yidzs_788
+yidzs_788_loko
 nansha_oajs
 pache
 lirunbfp_089
